@@ -1,3 +1,3 @@
 Hello 👋
 
-Contact me (mailto:and4v@proton.me).
+Contact me and4v@proton.me.
